@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @anjalisingh23
+- On a journey to build, learn, and rise higher — one commit at a time!
 
 
 <!---
